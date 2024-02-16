@@ -1,4 +1,4 @@
-# Bhirmgham AI: Where AI minds meet in the Magic City ‍♀️
+# Birmingham AI: Where AI minds meet in the Magic City ‍♀️
 
 Hey there, AI enthusiasts! 👋
 
